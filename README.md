@@ -1,1 +1,0 @@
-# Al-WERSHAFANE_VIP
